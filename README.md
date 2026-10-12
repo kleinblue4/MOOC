@@ -4,4 +4,4 @@
 
 也可以通过网盘来下载这些题目材料：
 
-- 通过网盘分享的文件：科研伦理与学术规范概论，链接: https://pan.baidu.com/s/1Qu-HI9aQPeVIKWwIRCVcLA 提取码: p3x6
+- 科研伦理与学术规范概论，链接: https://pan.baidu.com/s/1Qu-HI9aQPeVIKWwIRCVcLA 提取码: p3x6

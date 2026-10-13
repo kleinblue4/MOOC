@@ -4,4 +4,5 @@
 
 也可以通过网盘来下载这些题目材料：
 
-- 科研伦理与学术规范概论，链接: https://pan.baidu.com/s/1Qu-HI9aQPeVIKWwIRCVcLA 提取码: p3x6
+* SEU-MOOC，链接: https://pan.baidu.com/s/1toP4d-yJS\_epl8-qAc7SIw 提取码: ksir
+

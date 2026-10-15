@@ -4,5 +4,5 @@
 
 也可以通过网盘来下载这些题目材料：
 
-* SEU-MOOC，链接: https://pan.baidu.com/s/1toP4d-yJS\_epl8-qAc7SIw 提取码: ksir
+* SEU-MOOCC链接: https://pan.baidu.com/s/1AzTNO0sgkPSJ-478qw1l4g 提取码: 9tqj
 
